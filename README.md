@@ -1,1 +1,1 @@
-https://melnikovya.github.io/tatto/
+https://melnikovya.github.io/tatto-ink/
